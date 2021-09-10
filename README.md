@@ -6,7 +6,7 @@
 3. Pretty easy to understand when Dan is explaining
 4. Yea!
 
-### Dan
+### Dan and Stacy
 1. Would
 2. Like
 3. Some
