@@ -3,7 +3,7 @@
 ### Stacy's leardning GIT
 1. Git
 2. Is
-3. Pretty cool
+3. Pretty easy to understand when Dan is explaining
 4. Yea!
 
 ### Dan
