@@ -16,3 +16,6 @@
 7. For
 8. This
 9. Tut
+
+### Things to consider
+1. Does stacy also want cherries?
