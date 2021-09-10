@@ -10,7 +10,7 @@
 1. Would
 2. Like
 3. Some
-4. Cherries
+4. Cherries (half -defrosted)
 5. In
 6. Exchange
 7. For
